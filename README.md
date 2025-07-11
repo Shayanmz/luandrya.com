@@ -1,1 +1,0 @@
-# luandrya.com
